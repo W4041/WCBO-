@@ -1,3 +1,3 @@
 WCBO
 http://wcbo.finance.blog 
-1qw56Yu3PH35Tg88wvnm7Sfh8uf45Gjg
+WCBO1Qw56Yu3PH35TG88wvNM7Sfh8uf45Gjg
