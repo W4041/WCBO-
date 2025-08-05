@@ -1,3 +1,3 @@
-# WCBO-
-https://wcbo.finance.blog 
-1qwertyuiopasdfghjklzxcvbnmqwert
+WCBO
+https://wcbo.finance.blog
+WCBO1Qw56Yu3PH35Tg88wvnm7Sfh8uf45Gjg88Go5za37zh5p
